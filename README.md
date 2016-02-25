@@ -1,2 +1,2 @@
 # just-another-
-Wlasnie zaczalemuczyc sie kodowania
+Wlasnie zaczalem uczyc sie kodowania
